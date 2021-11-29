@@ -24,7 +24,7 @@ Other developments in the area included the cofferdam, the tailrace tunnel, unde
 
 The area was also adapted for tourist attractions in and across the Falls, on Goat Island and Queen Victoria Park. Various bridges and tunnels were constructed to enable tours through the falls and the islands, while several bridges crisscross over the rapids, connecting Canada and America technologically. Many images show the vista populated by travellers and tourists, even sometimes overwhelming photos of the Falls with their presence. The crowds of people serve as an integral part of the view, showing how the fast-growing population and developments encroached on the nature of the Falls. 
 
-The following series of images shows Niagara’s nature and environment working in tandem together, exploring how the booming industry visually changes, affects or overwhelms the landscape around it. The template repository features all of its objects from the Brock University Library's [Digital Collections Repository](dr.library.brocku.ca). 
+The template repository features all of its objects from the Brock University Library's [Digital Collections Repository](dr.library.brocku.ca). 
 
 
 Sources: 
