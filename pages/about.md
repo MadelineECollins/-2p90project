@@ -31,6 +31,8 @@ Sources:
 
 Haila, Yrjo. “ ‘Wilderness’ and the Multiple layers of Environmental Thought.” Environment and History 3, no. 2, Ecological Visionaries/Ecologised Visions (June, 1997): 129–147. doi:10.3197/096734097779555935
 
+Hennepin, Louis, Victor Hugo Paltsits, and Reuben Gold Thwaites. A New Discovery of a Vast Country in America. Chicago: A. C. McClurg & Co., 1903.
+
 [Hyde, Henry M. “Who Owns the Earth and How Did They Get It? A New Monopoly on Water.” The Technical World Magazine, vol. 10, no. 6, pp. 553-564.](http://hdl.handle.net/10464/13187) 
 
 Klein, Jeff Z. “Heritage Moments: 'This Horrible Precipice' — Father Hennepin bears witness to Niagara Falls.” WBFO, 14 March 2016, https://www.wbfo.org/heritage-moments/2016-03-14/heritage-moments-this-horrible-precipice-father-hennepin-bears-witness-to-niagara-falls. Accessed 28 November 2021. 
@@ -46,6 +48,8 @@ The Niagara Falls Museums. “Indigenous History: a brief summary.” Niagara Fa
 The Niagara Falls Museums. “Terrapin Bridge & Tower.” Niagara Falls History Museum, https://niagarafallsmuseums.ca/discover-our-history/history-notes/terrapintower.aspx. Accessed 28 November 2021.
  
 The Niagara Falls Museums. “The Lower Niagara Bridges.” Niagara Falls Museums, https://niagarafallsmuseums.ca/ts4fsuww-yyl.aspx. Accessed 29 November 2021.
+
+“Site of the Cataract House – Niagara Falls Underground Railroad Heritage Center.” Niagara Falls Underground Railroad Heritage Center, https://www.niagarafallsundergroundrailroad.org/underground_railroad_site/site-of-the-cataract-house/. Accessed 30 November 2021.
  
 Werle, Kerstin J.S. “Landscape as an Area of Unspoiled Nature.” Landscape of Peace: Mechanisms of Social Control on Lamotrek Atoll, Micronesia, VS Verlag für Sozialw., 2014, pp. 81-83, https://doi.org/10.1007/978-3-658-05832-6_14. Accessed 16 November 2021.
 
